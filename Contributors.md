@@ -1,2 +1,2 @@
 # Contributors
-- HI there!, I am Nuruddeen! (https://github.com/sambonuruddeen)
+- HI there!, I am Nuruddeen Sambo! (https://github.com/sambonuruddeen)
